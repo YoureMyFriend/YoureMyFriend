@@ -25,34 +25,7 @@ $\color{#0360FF}\text{ 𓏻 he / ﹺhim STRICTLY no female pronouns ✚⏝ ⏝ .
 <p align="center">
   <img src="https://cdn.discordapp.com/attachments/1543299729004437685/1555210924523126896/Untitled37_20261001212306.png?backend=b2&ex=6abfb28a&is=6abe610a&hm=bba8c28593ebb7d407c5096f9bb2f036d27a639b7623a26ad48f6d28a03f74b8&" alt="Description" width="50">  <img src="https://cdn.discordapp.com/attachments/1543299729004437685/1555210926058246235/Untitled37_20261001212311.png?backend=b2&ex=6abfb28b&is=6abe610b&hm=72108826941d92207da29a25d6cd28a5e572ceffd9959e4ade2ca9dcdcf9675b&" alt="Description" width="50"> <img src="https://cdn.discordapp.com/attachments/1543299729004437685/1555210926880334017/Untitled37_20261001212314.png?backend=b2&ex=6abfb28b&is=6abe610b&hm=0bbd48c43f3bc5c44d5f0492d483daccd49411ab242838bd2ab333cafe314ffa&" alt="Description" width="50">
 </p>
-
-
-  <details> <summary> ${\textsf{\color{pink} BFYI }}$ </summary>
-
-OK :
-
-Cuddles, unless I put “Cuddle Oomf”
-
-Compliments 
-
-15+ people
-
-etc
-
-NO:
-
-Copying/taking inspiration of my designs
-
-Proship, racists, homophobic, problematic etc.
-
-Under age of 15+ 
-
-Mutual/friend request (I like to keep my circle small)
-
-</details>
-
-
-<details> <summary> ${\textsf{\color{blue} CLOSE CIRCLE }}$ </summary>
+<details> <summary> ${\textsf{\color{blue} IHeartYou }}$ </summary>
   
 ♡ Lewie ( 10 . 5 . 26)
  -  Aero , Hana , Nana , Zaza, BAKAR GC , Aloe
