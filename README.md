@@ -6,7 +6,6 @@
 <p align="center">
 $\color{#C58FBC}\text{✚⏝ ⏝ . ´´}$ 
 
-![Profile View Counter on GitHub](https://github.com/YoureMyFriend)
 
 <p align="center">
 $\color{#0360FF}\text{TRUTH,}$ $\color{#AF69AD}\text{DARE,}$ $\color{#0360FF}\text{DOUBLE DARE,}$ $\color{#AF69AD}\text{KISS,}$ $\color{#0360FF}\text{COMMAND,}$ $\color{#AF69AD}\text{TORTURE.. 💭}$
