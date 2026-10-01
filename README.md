@@ -27,10 +27,11 @@ $\color{#0360FF}\text{ 𓏻 he / ﹺhim STRICTLY no female pronouns ✚⏝ ⏝ .
 </p>
 
 
-  <details> <summary> ${\textsf{\color{pink} BYFI }}$ </summary>
+  <details> <summary> ${\textsf{\color{pink} BFYI }}$ </summary>
 
 OK :
-Cuddles are okay unless I put “Cuddle Oomf”
+
+Cuddles, unless I put “Cuddle Oomf”
 
 Compliments 
 
@@ -39,6 +40,7 @@ Compliments
 etc
 
 NO:
+
 Copying/taking inspiration of my designs
 
 Proship, racists, homophobic, problematic etc.
