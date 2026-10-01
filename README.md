@@ -18,7 +18,11 @@ $\color{#0360FF}\text{TRUTH,}$ $\color{#AF69AD}\text{DARE,}$ $\color{#0360FF}\te
 </p>
 
 <p align="center">
-$\color{#C05FA2}\text{♡ WORK IN PROGRESS X3 }$ 
+$\color{#C05FA2}\text{♡ FEL  }$ $\color{#9162C4}\text{⪩ ⪨ ̮ ̮  CHURRO}$ $\color{#4B77D4}\text{⪩ ⪨ ̮ ̮ SKATER !}$
+<p align="center">
+$\color{#0360FF}\text{ 𓏻 he / ﹺhim STRICTLY no female pronouns ✚⏝ ⏝ .}$
+
+
 
 <p align="center">
   <img src="https://cdn.discordapp.com/attachments/1417898357719830531/1555110587904827422/IMG_3964.gif?backend=b2&ex=6abf5518&is=6abe0398&hm=bbd2a0548c01ab71d5864b74ada41dabd0fc44c708f1a872aad7a55b83ff5dee&" alt="Description" width="500">
