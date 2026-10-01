@@ -27,6 +27,35 @@ $\color{#0360FF}\text{ 𓏻 he / ﹺhim STRICTLY no female pronouns ✚⏝ ⏝ .
 </p>
 
 
+  <details> <summary> ${\textsf{\color{pink} BYFI }}$ </summary>
+
+OK :
+Cuddles are okay unless I put “Cuddle Oomf”
+
+Compliments 
+
+15+ people
+
+etc
+
+NO:
+Copying/taking inspiration of my designs
+
+Proship, racists, homophobic, problematic etc.
+
+Under age of 15+ 
+
+Mutual/friend request (I like to keep my circle small)
+
+</details>
+
+
+<details> <summary> ${\textsf{\color{blue} CLOSE CIRCLE }}$ </summary>
+  
+♡ Lewie ( 10 . 5 . 26)
+ -  Aero , Hana , Nana , Zaza, BAKAR GC , Aloe
+
+</details>
 
 <p align="center">
   <img src="https://cdn.discordapp.com/attachments/1417898357719830531/1555110587904827422/IMG_3964.gif?backend=b2&ex=6abf5518&is=6abe0398&hm=bbd2a0548c01ab71d5864b74ada41dabd0fc44c708f1a872aad7a55b83ff5dee&" alt="Description" width="500">
