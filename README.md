@@ -23,7 +23,7 @@ $\color{#C05FA2}\text{♡ FEL  }$ $\color{#9162C4}\text{⪩ ⪨ ̮ ̮  CHURRO}$ 
 $\color{#0360FF}\text{ 𓏻 he / ﹺhim STRICTLY no female pronouns ✚⏝ ⏝ .}$
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1543299729004437685/1555210924523126896/Untitled37_20261001212306.png?backend=b2&ex=6abfb28a&is=6abe610a&hm=bba8c28593ebb7d407c5096f9bb2f036d27a639b7623a26ad48f6d28a03f74b8&" alt="Description" width="50">  <img src="https://cdn.discordapp.com/attachments/1543299729004437685/1555210926058246235/Untitled37_20261001212311.png?backend=b2&ex=6abfb28b&is=6abe610b&hm=72108826941d92207da29a25d6cd28a5e572ceffd9959e4ade2ca9dcdcf9675b&" alt="Description" width="50"> <img src="https://cdn.discordapp.com/attachments/1543299729004437685/1555210926880334017/Untitled37_20261001212314.png?backend=b2&ex=6abfb28b&is=6abe610b&hm=0bbd48c43f3bc5c44d5f0492d483daccd49411ab242838bd2ab333cafe314ffa&" alt="Description" width="50">
+  <img src="https://cdn.discordapp.com/attachments/1543299729004437685/1555210924523126896/Untitled37_20261001212306.png?backend=b2&ex=6abfb28a&is=6abe610a&hm=bba8c28593ebb7d407c5096f9bb2f036d27a639b7623a26ad48f6d28a03f74b8&" alt="Description" width="50">  <img src="https://cdn.discordapp.com/attachments/1543299729004437685/1555210926058246235/Untitled37_20261001212311.png?backend=b2&ex=6abfb28b&is=6abe610b&hm=72108826941d92207da29a25d6cd28a5e572ceffd9959e4ade2ca9dcdcf9675b&" alt="Description" width="50"> <img src="https://cdn.discordapp.com/attachments/1543299729004437685/1555210926880334017/Untitled37_20261001212314.png?backend=b2&ex=6ac1040b&is=6abfb28b&hm=a08b33196a56efaa7e7fec2e1de8c8d4b814cf2abe877f8b97fc9fde4a1ab748&="Description" width="50"> 
 
 
 <details>
