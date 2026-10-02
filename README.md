@@ -40,7 +40,7 @@ $\color{#0360FF}\text{ 𓏻 he / ﹺhim STRICTLY no female pronouns ✚⏝ ⏝ .
   <p align="center">
     ♡︎   friends / connections𓏼✚
 <p align="center">  
- + @zazaerqe @keleatskelp @kysdusk @shark_0505 @hailumii @hm_2408 @sosp5w4 @.lee_ly @nerdycurtis @iod1n @zennyapplejuice @005_al, etc!
+ + @zazaerqe @keleatskelp @miyorunori @shark_0505 @hailumii @hm_2408 @sosp5w4 @.lee_ly @nerdycurtis @iod1n @zennyapplejuice @005_al, etc!
 
 
 <p align="center">
